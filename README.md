@@ -1,0 +1,4 @@
+- [http://isobelleach.github.io/](http://isobelleach.github.io/)
+- [https://medium.com/@isobelleach](https://medium.com/@isobelleach)
+- [https://www.quora.com/profile/Isobel-Leach-1](https://www.quora.com/profile/Isobel-Leach-1)
+- [https://x.com/IsobelLeac1387](https://x.com/IsobelLeac1387)
